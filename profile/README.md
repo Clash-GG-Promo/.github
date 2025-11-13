@@ -7,7 +7,7 @@ Whether you are unboxing **CS2 skins**, experimenting with **Clash Originals**, 
 To see how **[Clash.gg](https://clash.gg/r/TLL)** compares to other platforms, check the updated list:  
 **[Best CS2 Gambling Sites in 2025: Ranked List](https://gist.github.com/MontePillau/ba6760b2959f01d84c79419b46655d6f)**
 
-![Clash.gg promo code](https://imgur.com/PKIySnL)
+![Clash.gg promo code](https://imgur.com/PKIySnL.jpg)
 ---
 
 ## What Is Clash.gg?
